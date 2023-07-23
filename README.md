@@ -1,2 +1,2 @@
-# Paozin by Kibum.png
+# Paozin
 
